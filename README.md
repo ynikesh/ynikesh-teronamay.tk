@@ -1,0 +1,1 @@
+# ynikesh-teronamay.tk
